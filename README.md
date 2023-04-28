@@ -1,4 +1,4 @@
-### Hi its Saad 👋
+### Hey, its Saad 👋
 
 Here are some ideas to get you started:
 
